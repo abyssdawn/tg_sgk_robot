@@ -2,7 +2,7 @@
 
 AI社工库
 
-[t.me/AI\_SGKBOT?s…](https://t.me/AI_SGKBOT?start=AISGK_IENTJZKN")
+[t.me/AI\_SGKBOT?s…](https://t.me/AI_SGKBOT?start=AISGK_IENTJZKN)
 
 X-ray社工库
 
